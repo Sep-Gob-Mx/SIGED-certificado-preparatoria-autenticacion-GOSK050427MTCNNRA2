@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GOSK050427MTCNNRA2
+GOSK050427MTCNNRA2
